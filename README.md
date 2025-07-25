@@ -1,0 +1,1 @@
+#Ai boyoshe aisa github sikha lage ,age ken shiklam na 
